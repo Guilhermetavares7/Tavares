@@ -34,3 +34,7 @@ partiu América- Matheus é um dono de um parque de diversões muito simples, qu
 divórcio- Noeli é roubada do altar por Júlio. O casal enriquece quando o molho de tomate Juno, criado por eles, torna-se um sucesso. Mas a rotina distancia o casal e eles se separam. Para defender o patrimônio, cada um tenta achar o melhor advogado para si, o que gera um processo de divórcio cheio de confusões.
 
 ![](https://media.tenor.com/2LfLnTEIK0oAAAAM/twochoices-funny.gif)
+
+os farofeiros- Quatro colegas de trabalho se programam para curtir o feriado prolongado em uma casa de praia. Lá, eles descobrem que se meteram em uma tremenda roubada.
+
+![](https://media.tenor.com/RX-diSG2xvQAAAAM/run-fun.gif)
