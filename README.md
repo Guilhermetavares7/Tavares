@@ -30,3 +30,7 @@ uma noite de crime a fronteira-No dia seguinte ao Expurgo, uma família é ataca
 partiu América- Matheus é um dono de um parque de diversões muito simples, que tem o sonho de conhecer os famosos parques dos EUA. Mas, quando a família dele finalmente tem a oportunidade de viajar para o exterior pela primeira vez, as coisas não saem como esperado.
 
 ![](https://media1.tenor.com/m/-yeqApW_Vj4AAAAd/mercedes-c63amg.gif)
+
+divórcio- Noeli é roubada do altar por Júlio. O casal enriquece quando o molho de tomate Juno, criado por eles, torna-se um sucesso. Mas a rotina distancia o casal e eles se separam. Para defender o patrimônio, cada um tenta achar o melhor advogado para si, o que gera um processo de divórcio cheio de confusões.
+
+![](https://media.tenor.com/2LfLnTEIK0oAAAAM/twochoices-funny.gif)
