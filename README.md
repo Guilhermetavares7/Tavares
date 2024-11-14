@@ -11,4 +11,6 @@ tropa de elite-Nascimento, capitão da Tropa de Elite do Rio de Janeiro, é desi
 
 ![](https://media1.tenor.com/m/ANSijm4FQhEAAAAd/joe-cool-xbox.gif)
 
+uma noite de crime-O governo constata que suas prisões estão cheias demais e cria uma nova lei que permite todas as atividades ilegais durante 12 horas. O intuito, segundo o governo, é permitir que todos os cidadãos libertem seus impulsos violentos, garantindo a paz nos outros dias do ano. Neste contexto vive a família de James Sandin, um vendedor de sistemas de segurança. Quando o evento ocorre, no entanto, o filho de James aceita abrigar um homem perseguido por psicopatas.
 
+![](https://media1.tenor.com/m/RjnXpwPJpZ0AAAAd/peronia1-peronia.gif)
