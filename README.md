@@ -10,3 +10,5 @@ cidade dos homens-Amigos de infância, Acerola e Laranjinha estão se aproximand
 tropa de elite-Nascimento, capitão da Tropa de Elite do Rio de Janeiro, é designado para chefiar uma das equipes que tem como missão apaziguar o Morro do Turano. Ele precisa cumprir as ordens enquanto procura por um substituto para ficar em seu lugar. Em meio a um tiroteio, Nascimento e sua equipe resgatam Neto e Matias, dois aspirantes a oficiais da PM. Ansiosos para entrar em ação e impressionados com a eficiência de seus salvadores, os dois se candidatam ao curso de formação da Tropa de Elite
 
 ![](https://media1.tenor.com/m/ANSijm4FQhEAAAAd/joe-cool-xbox.gif)
+
+
