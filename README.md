@@ -26,3 +26,7 @@ vizinhos-Um jovem casal se muda para um bairro aparentemente tranquilo com o fil
 uma noite de crime a fronteira-No dia seguinte ao Expurgo, uma família é atacada por uma gangue mascarada. Enquanto o país mergulha em um caos anárquico de violência, o grupo descobre que há um movimento que pretende punir aqueles que têm condições de se proteger do dia Expurgo.
 
 ![](https://media.tenor.com/_Ysr0DFFa8kAAAAM/thats-how-we-feel-the-forever-purge.gif)
+
+partiu América- Matheus é um dono de um parque de diversões muito simples, que tem o sonho de conhecer os famosos parques dos EUA. Mas, quando a família dele finalmente tem a oportunidade de viajar para o exterior pela primeira vez, as coisas não saem como esperado.
+
+![](https://media1.tenor.com/m/-yeqApW_Vj4AAAAd/mercedes-c63amg.gif)
