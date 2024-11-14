@@ -18,3 +18,7 @@ uma noite de crime-O governo constata que suas prisões estão cheias demais e c
 a primeira noite de crime- Para empurrar a taxa de criminalidade abaixo de um por cento para o resto do ano, os novos pais fundadores da América tentam um experimento sociológico radical que permite aos cidadãos desabafar sua agressão por uma noite em uma comunidade isolada. A ideia logo explode em toda a nação quando a violência dos opressores atinge a raiva dos marginalizados.
 
 ![](https://media1.tenor.com/m/AXnhEW_7mKcAAAAd/purga-la-noche-de-las-bestias.gif)
+
+vizinhos-Um jovem casal se muda para um bairro aparentemente tranquilo com o filho recém-nascido. Mas, ao contrário da paz que esperavam, se deparam com Teddy Sanders, um vizinho boêmio, que lidera os jovens das redondezas nas confusões aprontadas por eles.
+
+![](https://media.tenor.com/mtOh4Uo449gAAAAM/neighbors-rose.gif)
