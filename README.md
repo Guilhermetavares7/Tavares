@@ -22,3 +22,7 @@ a primeira noite de crime- Para empurrar a taxa de criminalidade abaixo de um po
 vizinhos-Um jovem casal se muda para um bairro aparentemente tranquilo com o filho recém-nascido. Mas, ao contrário da paz que esperavam, se deparam com Teddy Sanders, um vizinho boêmio, que lidera os jovens das redondezas nas confusões aprontadas por eles.
 
 ![](https://media.tenor.com/mtOh4Uo449gAAAAM/neighbors-rose.gif)
+
+uma noite de crime a fronteira-No dia seguinte ao Expurgo, uma família é atacada por uma gangue mascarada. Enquanto o país mergulha em um caos anárquico de violência, o grupo descobre que há um movimento que pretende punir aqueles que têm condições de se proteger do dia Expurgo.
+
+![](https://media.tenor.com/_Ysr0DFFa8kAAAAM/thats-how-we-feel-the-forever-purge.gif)
