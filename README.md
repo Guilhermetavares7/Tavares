@@ -14,3 +14,7 @@ tropa de elite-Nascimento, capitão da Tropa de Elite do Rio de Janeiro, é desi
 uma noite de crime-O governo constata que suas prisões estão cheias demais e cria uma nova lei que permite todas as atividades ilegais durante 12 horas. O intuito, segundo o governo, é permitir que todos os cidadãos libertem seus impulsos violentos, garantindo a paz nos outros dias do ano. Neste contexto vive a família de James Sandin, um vendedor de sistemas de segurança. Quando o evento ocorre, no entanto, o filho de James aceita abrigar um homem perseguido por psicopatas.
 
 ![](https://media1.tenor.com/m/RjnXpwPJpZ0AAAAd/peronia1-peronia.gif)
+
+a primeira noite de crime- Para empurrar a taxa de criminalidade abaixo de um por cento para o resto do ano, os novos pais fundadores da América tentam um experimento sociológico radical que permite aos cidadãos desabafar sua agressão por uma noite em uma comunidade isolada. A ideia logo explode em toda a nação quando a violência dos opressores atinge a raiva dos marginalizados.
+
+![](https://media1.tenor.com/m/AXnhEW_7mKcAAAAd/purga-la-noche-de-las-bestias.gif)
